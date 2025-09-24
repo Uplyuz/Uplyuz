@@ -25,7 +25,7 @@
 ---
 
 ## 📫 Conecta conmigo
-- [LinkedIn](www.linkedin.com/in/luis-gerardo-castillo-moronta)   
+- [LinkedIn](https://www.linkedin.com/in/luis-gerardo-castillo-moronta)   
 
 ---
 
